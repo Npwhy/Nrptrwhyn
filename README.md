@@ -1,0 +1,2 @@
+# Nrptrwhyn
+Allah
